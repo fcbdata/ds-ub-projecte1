@@ -1,1 +1,0 @@
-# ds-ub-projecte1
